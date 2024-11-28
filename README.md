@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on : I donot have some influence for the industry now( Especially I donnot possess useful skills in the industry ). temporarily , I donnot consent to collaborate until I finish a project by myself alone.
 - 📫 How to reach me : As far as I said that, temporarily I donont post my other REACH-OUT ways.
 - 😄 Pronouns: Half-baked-knowledge,MongXin,Fan(or Fun,sometimes my friends call me function)
-- ⚡ Fun fact: In my 4-year-old I set off my home alone, although my travelling was so beautiful--but the thing donot benefit for my parents , when they fonud me out off my home, firstly , they consider that I was stolen by the children-seller . Fortunately , I  have been seen by a well-heart-women, a mother with 2 or 3 children , who tell the policeman I get lost in another countryside-town.
+- ⚡ Fun fact: In my 4-year-old I DROP OUT off my home alone, although my travelling was so beautiful--but the thing donot benefit for my parents , when they fonud me out off my home, firstly , they consider that I was stolen by the evil-children-seller . Fortunately , I  have been seen by a well-heart-women, a mother with 2 or 3 children , who tell the policeman I get lost in another countryside-town.
 
 <!---
 MongXinChan/MongXinChan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
