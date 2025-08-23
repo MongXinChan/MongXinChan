@@ -14,6 +14,7 @@
 - 目前在学习Csapp和CS106B~
   -   CS61B及CS205的笔记正在安排
 - 偶尔写点东西，听点音乐，欢迎前来交流~
+- Learn to question
 
 
 
